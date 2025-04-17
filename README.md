@@ -1,5 +1,5 @@
 # 💫About Me :
-👋 Hi, I’m **Nguyễn Văn Minh** (@nvminh2003)  
+👋 Hi, I’m **Nguyễn Văn Minh** 
 
 
 ## 🌐Socials
